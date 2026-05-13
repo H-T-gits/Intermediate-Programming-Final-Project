@@ -85,7 +85,7 @@ Reyes_John_FinalProject/
 
 ## Video Demonstration
 
-YouTube link: *(to be added before submission)*
+YouTube link: N/A
 
 ---
 
